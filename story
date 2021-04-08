@@ -12,3 +12,4 @@ The crocodile was happy that he tricked the monkey, and blurted out the real rea
 The crocodile foolishly believed the monkey’s words and said, “Oh! Okay. Let’s go back and get it then!” And, swam back to the berry tree as fast as he could. As soon as they reached the bank, the monkey jumped on to the tree and climbed to the tallest branch, away from the crocodile’s grasp.
 “How can I keep my heart outside my body? Go back to your wife and tell her that she has married the biggest fool on this earth! And do not come back here ever. You are the worst friend I have ever had”, said the monkey. Disappointed and embarrassed at how foolish he was, the crocodile swam back home with empty hands.
 moral of the story
+this story is great
